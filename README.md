@@ -1,4 +1,1 @@
-🚀 Ready to create your very own "Ask Her Out" website? 
-Join me in this step-by-step HTML tutorial where we'll design and code a personalized site to help you pop the question! 
-From layout to interactive features, I've got you covered. 
-No coding experience required - let's make your proposal unforgettable! 💻💘 #WebDevelopment #HTMLTutorial #LoveInTheCode
+sayangku, aku benar benar minta maaf atas kejadian yang tadi, aku tidak ingin memperpanjang, aku hanya ingin kita seperti biasanya, yang lucu, yang seru, yang saling bilang kalo kita sayang satu sama lain, walaupun tadi memang sepenuhnya kesalahanku, sekarang aku ingin meminta agar kita seperti biasa lagi (anjai banyak mau banget)😛😳
